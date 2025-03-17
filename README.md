@@ -1,5 +1,5 @@
 # 💫 About Me:
-living in the uae<br>i play games 24/7 <br>your avg monster addict <br>
+living in the uae<br>i play games 24/7 <br>your avg monster addict <br>i will travel the world<br>
 
 
 ## 🌐 Socials:
